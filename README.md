@@ -1,2 +1,3 @@
 thefredyjacob.com my personal website 
-![msedge_S7bHUpjgj3](https://github.com/user-attachments/assets/f07e17ba-fafa-4983-8ba1-dfa7c0535195)
+
+![msedge_S7bHUpjgj3](https://github.com/user-attachments/assets/2a33d548-2b3a-4c9d-9837-af0330828b1e)
